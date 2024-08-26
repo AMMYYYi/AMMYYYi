@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning GitHub 
 - 💞️ I’m looking to collaborate on Microsoft 
 - 📫 How to reach me amritaroy@gmail.com
-- 😄 Pronouns: Amy 
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: beginner 🔰 
 
 <!---
