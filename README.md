@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Microsoft 
 - 📫 How to reach me amritaroy@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: beginner 🔰 
+- ⚡ Fun fact: 🎮🕹🏏 🔰 
 
 <!---
 AMMYYYi/AMMYYYi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
